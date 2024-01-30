@@ -9,3 +9,8 @@
   - _**Lucky colour:**_ green; 
 
   - _**Lucky element:**_ jade
+
+Snakes working in male-dominated industries will have a good chance for career advancement. It is also a good year for promotions for those in clerical or white-collar jobs.
+
+There are two unlucky stars for Snakes this year that will cast a shadow over their health and relationships. Extra effort made in communicating with their partners may prevent potential break-ups.
+
